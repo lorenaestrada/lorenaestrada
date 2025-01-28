@@ -2,8 +2,6 @@
  ***************
 - 🎓 **BBA in Accounting minor in MIS** from [The University of the Incarnate Word] (https://www.uiw.edu/)
 - 🎓 **MSc in Computing and Information Systems** from [Queen Mary University of London] (https://www.qmul.ac.uk/)                                                  
-- 📫 Reach me at: **Lorenaeestrada12@gmail.com**
-
 ***************
 
   
